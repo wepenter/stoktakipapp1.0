@@ -1,0 +1,1 @@
+# stoktakiapp1.0
